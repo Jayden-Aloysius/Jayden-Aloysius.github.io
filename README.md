@@ -6,6 +6,6 @@
 Math, Science
 
 ### Where I've Volunteered
-Church: 20 hours
+Church: 20 hours,
 Air Cadets: 6 hours
 
