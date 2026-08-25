@@ -1,1 +1,11 @@
-# Jayden-Aloysius.github.io
+# Grade 09 Student
+
+## I combine regimented leadership & technical reasoning with compassion & empathy to make meaningful impacts.
+
+### Strongest/Favourite Subjects
+Math, Science
+
+### Where I've Volunteered
+Church: 20 hours
+Air Cadets: 6 hours
+
